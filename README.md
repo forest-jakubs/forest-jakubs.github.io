@@ -1,1 +1,2 @@
-# forest-jakubs.github.io
+# FOREST JAKUBS
+## Web3 / Blockchain Developer
